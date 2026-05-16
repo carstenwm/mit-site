@@ -2,3 +2,4 @@ Har 4 børn 3 drenge: [[1_Noter/Familie/Familie B/Familien, Sønderbyvej 11/Jona
 
 Uddannet Socialrådgiver for nylig. 
 
+#ppl/tora #ppl/tina #ppl/jens #ppl/carsten #ppl/morfar-niels #ppl/mormor-jonna 
