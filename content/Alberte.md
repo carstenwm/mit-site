@@ -1,0 +1,1 @@
+Alberte går i børnehave i Skjern,  kommer for øvrigt her om et øjeblik  Tina henter hende når hun afleveret Tora ved hendes bolig efter de har været i Herning sammen og her hjemme bagefter for at slå telt op. Karl er med. Mor [[1_Noter/Familie/Familie B/Familien, Sønderbyvej 11/Lisbeth Maria Hedegård Kristensen]] kommer senere 
