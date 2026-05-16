@@ -1,0 +1,1 @@
+Fx Anerbjerge Plantage er planted skovområder som ofte bruges kommercielt. Men som blev plantet for at forhindre sandflugt ind over land så dyrkning af jorden blev umuliggjordt

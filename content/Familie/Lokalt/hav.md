@@ -1,0 +1,1 @@
+Vesterhavet er vildt og voldsomt og sjældent til at bade i her nord for vadehavet som Fanø mv. 

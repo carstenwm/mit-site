@@ -1,0 +1,1 @@
+Bor på et opholdssted ved Hobro

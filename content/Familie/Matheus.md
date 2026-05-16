@@ -1,0 +1,1 @@
+Bor 7+7 ved sin mor i Skjern og sin far i Nr Bork 

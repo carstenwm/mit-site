@@ -1,0 +1,1 @@
+Ja, fjord, det er jo vores natur, vores vand. Det som er fredeligt llavt ttil at bade i og sejle på næsten uden at der kan være fare på færde 
